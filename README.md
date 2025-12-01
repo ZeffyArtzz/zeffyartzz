@@ -22,7 +22,7 @@
 
 ⋆˚࿔ 𝙸 𝚞𝚜𝚞𝚊𝚕𝚕𝚢 𝚐𝚘 𝚊𝚛𝚘𝚞𝚗𝚍 𝚊𝚜 𝚖𝚢 𝚋𝚜𝚍 𝚘𝚌 ⋆˚࿔
 
-<img width="100" height="100" src="https://media.tenor.com/Ed4Wvn6l5tUAAAAi/%D0%B1%D0%B0%D0%BD%D1%82%D0%B8%D0%BA.gif" /> <img width="100" height="100" src="https://media.tenor.com/TZiv7Ong9OMAAAAj/nikolai-gogol-bsd.gif" /> <img width="100" height="100" src="https://media.tenor.com/Ed4Wvn6l5tUAAAAi/%D0%B1%D0%B0%D0%BD%D1%82%D0%B8%D0%BA.gif" />
+
 
 ⋆˚࿔
 
