@@ -1,6 +1,5 @@
 <div align="center">
 
-<img src="https://i.postimg.cc/RFzcDH9b/Untitled1327-20230807102112.png" />
   
 <img src="https://neckdoll.zombie.jp/material/line/anq-rose/line-arose-g1.gif" />
 
@@ -29,10 +28,14 @@
  
 ♫⋆｡♪₊˚♬ﾟ. ♫⋆｡♪₊˚♬ﾟ. ♫⋆｡♪₊˚♬ﾟ. ♫⋆｡♪₊˚♬ﾟ.♫⋆｡
 
+
+
   <img src="https://media.tenor.com/q27KhS9kKmwAAAAj/dazai-liar-dancer.gif" />  
 
    
 ♫⋆｡♪₊˚♬ﾟ. ♫⋆｡♪₊˚♬ﾟ. ♫⋆｡♪₊˚♬ﾟ. ♫⋆｡♪₊˚♬ﾟ.♫⋆｡
+
+⋆˚࿔
 
 <img src="https://neckdoll.zombie.jp/material/line/anq-rose/line-arose-g1.gif" />
 
