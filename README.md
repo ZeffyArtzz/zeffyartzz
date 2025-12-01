@@ -7,7 +7,7 @@
 
 ⋆˚࿔
 
-<img width="361" height="232" alt="CAW" src="https://github.com/user-attachments/assets/5fa291a0-9473-4dcb-9b56-037e45402ba3" />
+<img width="361" height="232" alt="CAW" src="https://github.com/user-attachments/assets/5fa291a0-9473-4dcb-9b56-037e45402ba3" /> hii
 
 
 
@@ -31,10 +31,13 @@
 
 ♫⋆｡♪₊˚♬ﾟ. ♫⋆｡♪₊˚♬ﾟ. ♫⋆｡♪₊˚♬ﾟ. ♫⋆｡♪₊˚♬ﾟ.♫⋆｡♪₊˚♬ﾟ. ♫⋆｡♪₊˚♬ﾟ. ♫⋆｡♪₊˚
 
+  <img src="https://media.tenor.com/q27KhS9kKmwAAAAj/dazai-liar-dancer.gif" />  
 
-----------------------  <img src="https://media.tenor.com/q27KhS9kKmwAAAAj/dazai-liar-dancer.gif" />  ---------------------
-
+   
+♫⋆｡♪₊˚♬ﾟ. ♫⋆｡♪₊˚♬ﾟ. ♫⋆｡♪₊˚♬ﾟ. ♫⋆｡♪₊˚♬ﾟ.♫⋆｡♪₊˚♬ﾟ. ♫⋆｡♪₊˚♬ﾟ. ♫⋆｡♪₊˚
 
 <img src="https://neckdoll.zombie.jp/material/line/anq-rose/line-arose-g1.gif" />
 
 </div>
+
+
