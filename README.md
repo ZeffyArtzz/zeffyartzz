@@ -4,11 +4,15 @@
 
 <img width="361" height="232" alt="CAW" src="https://github.com/user-attachments/assets/5fa291a0-9473-4dcb-9b56-037e45402ba3" />𝓗𝓮𝓵𝓵𝓸!
 
-I'm offtab sometimes! Cuddles are welcome :)
-I usually go around as my bsd oc
+𝙸'𝚖 𝚘𝚏𝚏-𝚝𝚊𝚋 𝚜𝚘𝚖𝚎𝚝𝚒𝚖𝚎𝚜! 𝙲𝚞𝚍𝚍𝚕𝚎𝚜 𝚊𝚛𝚎 𝚠𝚎𝚕𝚌𝚘𝚖𝚎 :)
 
-<img width="480" height="251" alt="black and white (LQ)" src="https://github.com/user-attachments/assets/d3ca1a46-aace-4b6b-8172-a55c21cecb6f" />
+⋆˚࿔ 𝙸 𝚞𝚜𝚞𝚊𝚕𝚕𝚢 𝚐𝚘 𝚊𝚛𝚘𝚞𝚗𝚍 𝚊𝚜 𝚖𝚢 𝚋𝚜𝚍 𝚘𝚌 ⋆˚࿔
 
 
- 
+ <img width="480" height="251" alt="black and white" src="https://github.com/user-attachments/assets/6d049de1-ae78-4009-9b4e-de3fd5e68028" />
+
 ♫⋆｡♪₊˚♬ﾟ. ♫⋆｡♪₊˚♬ﾟ. ♫⋆｡♪₊˚♬ﾟ. ♫⋆｡♪₊˚♬ﾟ.♫⋆｡♪₊˚♬ﾟ. ♫⋆｡♪₊˚♬ﾟ. ♫⋆｡♪₊˚
+
+
+----------------------  <img src="https://media.tenor.com/q27KhS9kKmwAAAAj/dazai-liar-dancer.gif" />  ---------------------
+
