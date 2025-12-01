@@ -17,7 +17,6 @@
 
 <img width="480" height="251" alt="black and white" src="https://github.com/user-attachments/assets/f5f4ec45-44cd-4038-8eef-47d6d50fb1c2" />
 
-It's a me
 𝙸'𝚖 𝚘𝚏𝚏-𝚝𝚊𝚋 𝚜𝚘𝚖𝚎𝚝𝚒𝚖𝚎𝚜! 𝙲𝚞𝚍𝚍𝚕𝚎𝚜 𝚊𝚛𝚎 𝚠𝚎𝚕𝚌𝚘𝚖𝚎 :)
 
 
