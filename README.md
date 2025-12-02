@@ -35,13 +35,10 @@
 
 
 
-
+<div align="center">
   <img src="https://media.tenor.com/q27KhS9kKmwAAAAj/dazai-liar-dancer.gif" />  
-
+</div>
    
-♫⋆｡♪₊˚♬ﾟ. ♫⋆｡♪₊˚♬ﾟ. ♫⋆｡♪₊˚♬ﾟ. ♫⋆｡♪₊˚♬ﾟ.♫⋆｡
-
-⋆˚࿔
 
 <img src="https://neckdoll.zombie.jp/material/line/anq-rose/line-arose-g1.gif" />
 
