@@ -22,11 +22,17 @@
 ⋆˚࿔ 𝙸 𝚞𝚜𝚞𝚊𝚕𝚕𝚢 𝚐𝚘 𝚊𝚛𝚘𝚞𝚗𝚍 𝚊𝚜 𝚖𝚢 𝚋𝚜𝚍 𝚘𝚌 ⋆˚࿔
 
 
+<div align="center">
+<img width="280" height="200" src="https://media1.tenor.com/m/pIgErlpyxQ0AAAAd/nikolai-gogol-nikolai-gogol-bsd.gif" />
+</div>
 
-⋆˚࿔
+
+
+ <img width="50" height="50" src="https://media.tenor.com/Ed4Wvn6l5tUAAAAi/%D0%B1%D0%B0%D0%BD%D1%82%D0%B8%D0%BA.gif" /> ⋆˚࿔ <img width="50" height="50" src="https://media.tenor.com/Ed4Wvn6l5tUAAAAi/%D0%B1%D0%B0%D0%BD%D1%82%D0%B8%D0%BA.gif" />
+
 
  
-♫⋆｡♪₊˚♬ﾟ. ♫⋆｡♪₊˚♬ﾟ. ♫⋆｡♪₊˚♬ﾟ. ♫⋆｡♪₊˚♬ﾟ.♫⋆｡
+
 
 
 
@@ -39,6 +45,7 @@
 
 <img src="https://neckdoll.zombie.jp/material/line/anq-rose/line-arose-g1.gif" />
 
-</div>
 
+
+</div>
 
