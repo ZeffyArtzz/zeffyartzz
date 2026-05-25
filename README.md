@@ -23,7 +23,7 @@
 
 
 <div align="center">
-<img width="280" height="200" src="https://media1.tenor.com/m/pIgErlpyxQ0AAAAd/nikolai-gogol-nikolai-gogol-bsd.gif" />
+ <img width="295" height="298" src="https://media1.tenor.com/m/wyaVvsezIG4AAAAd/fyodor-dostoevsky-bsd.gif" />
 </div>
 
 
