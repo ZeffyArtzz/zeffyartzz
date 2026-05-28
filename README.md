@@ -13,7 +13,8 @@
 
 
 
-<p style="text-align:center;"><strong><span style="font-family:'Courier New';"><img src="https://cdn.discordapp.com/attachments/1071422549356974100/1509513310222159952/Untitled149_20260528190129.png?ex=6a197352&is=6a1821d2&hm=3854ccd25ecd97fef6fbb2c3e26aa4a728c06a7f32406b8be3a0eab188ace7ef&" style="width: 450px; display: block; vertical-align: top; margin: 5px auto; text-align: center;"></span></strong></p>
+<p style="text-align:center;"><strong><span style="font-family:'Courier New';"><img src="https://cdn.discordapp.com/attachments/1071422549356974100/1509517252838424596/Untitled149_20260528192213.png?ex=6a1976fe&is=6a18257e&hm=a24c088631b8bb4ebf1863a3395bfdf85b1e0ba2a0740b3c2783a566aeff6717&" style="width:345px;display:block;vertical-align:top;margin:5px auto;text-align:center;" alt="Untitled149_20260528192213.png?ex=6a1976fe&is=6a18257e&hm=a24c088631b8bb4ebf1863a3395bfdf85b1e0ba2a0740b3c2783a566aeff6717&"></span></strong></p>
+
 
 
 𝙸'𝚖 𝚘𝚏𝚏-𝚝𝚊𝚋 𝚜𝚘𝚖𝚎𝚝𝚒𝚖𝚎𝚜! 𝙲𝚞𝚍𝚍𝚕𝚎𝚜 𝚊𝚛𝚎 𝚠𝚎𝚕𝚌𝚘𝚖𝚎 :)
