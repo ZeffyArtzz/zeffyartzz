@@ -13,7 +13,8 @@
 
 
 
-<p style="text-align:center;"><strong><span style="font-family:'Courier New';"><img src="https://cdn.discordapp.com/attachments/1071422549356974100/1509517252838424596/Untitled149_20260528192213.png?ex=6a1976fe&is=6a18257e&hm=a24c088631b8bb4ebf1863a3395bfdf85b1e0ba2a0740b3c2783a566aeff6717&" style="width:345px;display:block;vertical-align:top;margin:5px auto;text-align:center;" alt="Untitled149_20260528192213.png?ex=6a1976fe&is=6a18257e&hm=a24c088631b8bb4ebf1863a3395bfdf85b1e0ba2a0740b3c2783a566aeff6717&"></span></strong></p>
+<p style="text-align:center;"><strong><span style="font-family:'Courier New';"><img src="https://cdn.discordapp.com/attachments/1071422549356974100/1509531139646292119/Untitled149_20260528201612.png?ex=6a1983ed&is=6a18326d&hm=3e992665149befc3398b04e4576ac6fa3369378d329ebdaa8a200b529e5100cc&" style="width:345px;display:block;vertical-align:top;margin:5px auto;text-align:center;" alt="Untitled149_20260528192213.png?ex=6a1976fe&is=6a18257e&hm=a24c088631b8bb4ebf1863a3395bfdf85b1e0ba2a0740b3c2783a566aeff6717&"></span></strong></p>
+
 
 
 
