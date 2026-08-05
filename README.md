@@ -11,9 +11,11 @@
 𝓗𝓮𝓵𝓵𝓸!✮
 
 
+<div align="center">
+<p style="text-align:center;"><strong><span style="font-family:'Courier New';"><br><img src="https://64.media.tumblr.com/b9f59c4806c849e61f2d3ed8984cf2b3/2053d61ef3cc601a-d4/s1280x1920/fc1d5099782926fa105d79ef3e6a405e78b2113d.pnj" style="width:345px;display:block;vertical-align:top;margin:5px auto;text-align:center;" alt="Untitled149_20260528201612.png?ex=6a37d66d&is=6a3684ed&hm=eda6f621092c1d40c5a24c0ad7755151da6800b5a2e3bb17c6014becdfd2c38c&"></span></strong><strong><span
+</div>
+   
 
-
-<p style="text-align:center;"><strong><span style="font-family:'Courier New';"><img src="https://cdn.discordapp.com/attachments/1071422549356974100/1509531139646292119/Untitled149_20260528201612.png?ex=6a1983ed&is=6a18326d&hm=3e992665149befc3398b04e4576ac6fa3369378d329ebdaa8a200b529e5100cc&" style="width:345px;display:block;vertical-align:top;margin:5px auto;text-align:center;" alt="Untitled149_20260528192213.png?ex=6a1976fe&is=6a18257e&hm=a24c088631b8bb4ebf1863a3395bfdf85b1e0ba2a0740b3c2783a566aeff6717&"></span></strong></p>
 
 
 
